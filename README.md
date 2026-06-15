@@ -1,4 +1,4 @@
-## Hi AJONG BERINE👋
+## Hi i'm AJONG BERINE👋
 
 **Year1 Ecommerce & Digital Marketing student at HIBMAT, Buea, Cameroon**
 
